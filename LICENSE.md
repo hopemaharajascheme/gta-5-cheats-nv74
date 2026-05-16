@@ -1,4 +1,4 @@
-
+Melhor GTA menu de mods traps é o melhor GTA menu de mods traps com mira automática e sem espalhamento. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
